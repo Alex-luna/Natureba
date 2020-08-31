@@ -8,32 +8,56 @@
 &nbsp;
 
 
-Você sabe o que é o consumo Consciente? Já ouviu falar? 🤔
+Você sabe o que é? Já ouviu falar? 🤔
 
 
-Pois bem, na certa com esse nome "consumo Consciente" já dá para desconfiar do que se trata, mas acho que você vai se surpreender que com pequen
+Na certa com esse nome "consumo Consciente" já dá para desconfiar do que se trata. Mas mesmo assim, tenho certeza que você vai se surpreender com a abrangência desse tópico...  Vamos lá
+
+Contextualizando um pouco aqui ...  
+A humanidade hoje, já consome 30% mais recursos naturais do que a capacidade de renovação da Terra. Isso significa que se os nossos padrões de consumo e produção se mantiverem no atual patamar, em menos de 50 anos serão necessários dois planetas Terra para atender nossas necessidades de água, energia e alimentos. 😨😨  
+Não é preciso dizer que essa situação certamente ameaçará toda a vida no planeta. Chocante não é mesmo?!
+
+A partir desse "problema" de consumo desenfreado nasce a ideia do consumo consciente, que não necessáriamente  deve ser tratado como um movimento, mas sim como um estilo de vida.
+
+**Mas afinal, o que é esse tal de consumo Consciente?**
+
+De modo simples, é um consumo com consciência de seu impacto e voltado à sustentabilidade. Bem tranquila essa definição né?!
+
+Pois, é preciso lembrar que todo consumo causa algum tipo de impacto, seja ele positivo ou negativo. Impacto na economia, nas relações sociais, na natureza e em você mesmo. 
+
+Ao se criar a "consciência" de que esses impactos existem, você como consumidor agora tem nas mãos a chance de contribuir, diminuindo os impactos negativos e aumentando ao máximo os positivos.
+
+O consumo consciente é uma questão de hábito, e como tal, deve ser práticado todos os dias. A melhor maneira de se fazer isso é a partir das escolhas de consumo, e lembre sempre, PEQUENAS ATITUDES IMPORTAM.   
+Fazendo sua parte, você inspira a mudança em outras pessoas, e assim elas começam também a fazer a parte delas, e desse jeito todos trabalhamos juntos para um mundo melhor.   
+E tudo isso começa com uma pequena atitude sua ... A decisão de começar a fazer a diferença, mudar para uma vida mais consciente.
+
+**Mas como eu faço isso? Você deve estar se perguntando...**
+
+Assim, o consumo consciente é uma contribuição voluntária, cotidiana e solidária para garantir a sustentabilidade da vida no planeta.
+
+É só na hora em que for comprar algo, sempre se questionar:
+
+- De quem comprar?   
+Decida comprar de empresas comprometidas com a causa ambiental. Também dê prioridade ao pequeno produtor no seu dia a dia.
+Dessa maneira, você fortalece a economia da região, traz um impacto positivo ao meio ambiente, diminui os intermediários e consequentemente, permite uma melhor remuneração.  
+Portanto, pesquise perto de você quais são esses projetos e invista neles.
+
+- Definir a maneira de usar e como descartar   
+Tenha sempre em mente quando for comprar algo, a vida útil do que você está comprando, e como vai ser o descarte daquele material, após o uso.
+
+- Planeje suas compras   
+Planejar melhor as compras, faz o dinheiro render mais. Com isso, você consegue economizar e aproveitar seu salário de maneiras diferentes. Consumir menos também mostra que é preciso pouco para ser feliz de verdade.😊
+
+Praticar o consumo consciente faz bem para todo mundo. Se, no início, parece difícil para você, conte com a ajuda de sites especializados no assunto e não desista. Assim que você conseguir estabelecer uma nova rotina, perceberá que era mais fácil do que imaginava. E elmbre que a @Garota.Natureba vai estar sempre aqui para te ajudar.
+
+Toda semana iremos postar uma atitude que podemos mudar no nosso cotidiano que ajudará na preservação da natureza, dos oceanos, do planeta, fiquem em paz, e fiquem bem. 
+
+.
+
+.
+
+.
 
 
-A humanidade já consome 30% mais recursos naturais do que a capacidade de renovação da Terra. Se os padrões de consumo e produção se mantiverem no atual patamar, em menos de 50 anos serão necessários dois planetas Terra para atender nossas necessidades de água, energia e alimentos. Não é preciso dizer que esta situação certamente ameaçará a vida no planeta, inclusive da própria humanidade.
-
-A melhor maneira de mudar isso é a partir das escolhas de consumo.
-
-Todo consumo causa impacto (positivo ou negativo) na economia, nas relações sociais, na natureza e em você mesmo. Ao ter consciência desses impactos na hora de escolher o que comprar, de quem comprar e definir a maneira de usar e como descartar o que não serve mais, o consumidor pode maximizar os impactos positivos e minimizar os negativos, desta forma contribuindo com seu poder de escolha para construir um mundo melhor. Isso é Consumo Consciente. Em poucas palavras, é um consumo com consciência de seu impacto e voltado à sustentabilidade.
-
-O consumo consciente é uma questão de hábito: pequenas mudanças em nosso dia-a-dia têm grande impacto no futuro. Assim, o consumo consciente é uma contribuição voluntária, cotidiana e solidária para garantir a sustentabilidade da vida no planeta.
-
-[6:44 PM, 8/29/2020] +55 82 8864-2700: Importância das atitudes individuais
-Acha que o que você faz parece pouco? Pois não é! Só em decidir comprar de empresas comprometidas com a causa ambiental, por exemplo, você já contribui para que esse tipo de prática cresça, impactando positivamente mais pessoas. Dessa forma, é possível diminuir bastante as consequências negativas geradas para o ambiente.
-
-Tanto seu modo de vida como seu bolso também aproveitam os benefícios do consumo consciente. Planejar melhor as compras, por exemplo, faz o dinheiro render mais. Com isso, você consegue economizar e aproveitar seu salário de maneiras diferentes. Consumir menos também mostra que é preciso pouco para ser feliz de verdade.
-[6:45 PM, 8/29/2020] +55 82 8864-2700: Valorização do pequeno produtor
-Priorizar o pequeno produtor no seu dia a dia é contemplar o consumo consciente na sua vida. Dessa maneira, você fortalece a economia da região, traz um impacto positivo ao meio ambiente, diminui os intermediários no processo de contratação e, consequentemente, permite uma melhor remuneração.
-
-Há diversas iniciativas positivas que valorizam a importância dos pequenos produtores que vão desde a moda, com marcas que confeccionam roupas com reutilização de tecido, sem a manutenção de estoques gigantescos, até a possibilidade de comprar produtos orgânicos com menos agrotóxicos. Portanto, pesquise perto de você quais são esses projetos e invista neles.
-
-Praticar o consumo consciente faz bem para todo mundo. Se, no início, parece difícil para você, conte com a ajuda dos sites especializados no assunto e não desista. Assim que você conseguir estabelecer uma nova rotina, perceberá que era mais fácil do que imaginava.
-
-
-[6:50 PM, 8/29/2020] +55 82 8864-2700: explica o consumo consciente e enfatiza que pequenos gestos não é pouco para melhorar o mundo.
-
-[6:51 PM, 8/29/2020] +55 82 8864-2700: os impactos no mundo, a cada semana iremos postar uma atitude que podemos mudar no nosso cotidiano que ajudará na preservação da natureza, dos oceanos, do planeta. etc
+#GarotaNatureba #ConsumoConsciente #Natureza #VidasemLixo #PequenoProdutor #MeioAmbiente #natureba #VidaMaisLimpa #LixoZero
+#EstiloDeVida #Natural
